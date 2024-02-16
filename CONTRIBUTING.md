@@ -1,0 +1,2 @@
+#  FS MEDİA TARAFINDAN GELİŞTİRİLMEKTEDİR
+## F💖S :)
